@@ -1,1 +1,1 @@
-# maura web3 profiles pictures
+# maura web3 profile picture
